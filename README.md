@@ -1,1 +1,1 @@
-Please get expression mtrix at OMIX013147
+Please get expression matrix at OMIX013147
